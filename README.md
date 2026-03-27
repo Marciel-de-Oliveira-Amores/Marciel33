@@ -26,7 +26,7 @@
 - 👯 Tenho enterece em evoluir profissionalmente como Desenvolvedor.
 
 
-Sou Marciel.atualmente tenho 35 anos  e estou em transição de carreira.
+Sou Marciel. estou em busca de oprtunidade
 Meus últimos anos foram trabalhando na área de Construção Civil como Eletricista Montador. 
 Sempre tive curiosidade e vontade de entrar para a área de tecnologia, e vi que o momento atual em que me encontro é o melhor para ir a fundo nesse meu desejo antigo, que é o de me tornar Desenvolvedor.
 
